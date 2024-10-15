@@ -1,4 +1,6 @@
-### Hi there 👋 How are you guys ???
+### Hi there my name is Gabriel.
+📫 How to reach me: Email:
+Linked:
 
 <!--
 **GabriellRezende/GabriellRezende** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
